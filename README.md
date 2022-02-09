@@ -1,0 +1,5 @@
+- 👋 I’m @troypms
+- 👀 I’m interested in the codes
+- 🌱 I’m currently learning the codes
+- 💞️ I’m looking to collaborate on the codes
+- 📫 You don't reach me
